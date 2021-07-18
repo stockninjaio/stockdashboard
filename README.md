@@ -18,6 +18,9 @@ Reminder on earnings reports, dividend dates, offerings, mergers, and more of yo
 Download Now: https://chrome.google.com/webstore/detail/stock-dashboard/hpobhbnjlcapcgkddngcdajcpifmgjkf?hl=en
 
 Official Website: https://www.stockninja.io
+
 Twitter: https://twitter.com/stockninjaio
+
 LinkedIn: https://www.linkedin.com/company/stockninja
+
 Contact Us: https://www.stockninja.io/contact/
